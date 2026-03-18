@@ -1,2 +1,6 @@
 # Branding
-1st Base Brand Support
+
+1stBase Brand & Publishing Resources
+
+- Litepaper
+- Logos
